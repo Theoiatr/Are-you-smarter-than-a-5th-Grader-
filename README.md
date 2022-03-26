@@ -1,5 +1,5 @@
 Are you smarter than a 5th grader?
-This servey/quiz was based on the American quiz show "Are You Smarter than a 5th Grader?" 
+This survey/quiz was based on the American quiz show "Are You Smarter than a 5th Grader?" 
 
 By: Theo Iatropoulos
 Follow @th3oooooo on twitter for updates!
